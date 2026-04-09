@@ -1,1 +1,1 @@
-Me chamo maria fernanda belcieri,tenho 18 anos, sou de brodoswki
+Me chamo Maria Fernanda Belcieri,tenho 18 anos, moro em Brodoswki
